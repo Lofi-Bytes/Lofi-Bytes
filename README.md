@@ -5,9 +5,7 @@ Engineering Manager, Design Systems and Developer Experience 👩🏼‍💻
 she/her🏳️‍⚧️
 
 #BlackTransLivesMatter
-
 #BlackLivesMatter
-
 #TransRightsAreHumanRights
 
 

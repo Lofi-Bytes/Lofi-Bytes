@@ -1,6 +1,6 @@
 LED artist🔥)'(🔥
 
-Engineering Manager, Design Systems and DevX👩🏼‍💻
+Engineering Manager, Design Systems and Developer Experience 👩🏼‍💻
 
 she/her🏳️‍⚧️
 

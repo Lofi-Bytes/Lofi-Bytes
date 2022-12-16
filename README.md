@@ -1,9 +1,13 @@
 LED artist🔥)'(🔥
+
 Engineering Manager, Design Systems and DevX👩🏼‍💻
+
 she/her🏳️‍⚧️
 
 #BlackTransLivesMatter
+
 #BlackLivesMatter
+
 #TransRightsAreHumanRights
 
 
